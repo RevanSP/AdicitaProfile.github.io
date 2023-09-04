@@ -1,2 +1,2 @@
 # AdicitaProfile.github.io
- bit.ly/AdicitaProfile
+Copy Link Berikut > bit.ly/AdicitaProfile
